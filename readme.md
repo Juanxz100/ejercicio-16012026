@@ -6,3 +6,4 @@
 ![Juan Jose Rios perfil](E:\1 UNAD\Juan Jose Rios perfil)
 
 
+![Juan Jose Rios perfil](https://github.com/user-attachments/assets/b50837cc-81f8-4e27-a0af-58a8484984ab)
